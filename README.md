@@ -2,6 +2,6 @@
 
 Hi Humans!
 
-Ok what should i right for my self, have no idea! 
+Ok what should i write for myself, have no idea! 
 
 
