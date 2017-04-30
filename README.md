@@ -1,2 +1,7 @@
 # Hello_World
-hello world testing 
+
+Hi Humans!
+
+Ok what should i write for myself, have no idea! 
+
+
